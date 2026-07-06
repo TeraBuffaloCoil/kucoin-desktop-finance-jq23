@@ -1,4 +1,4 @@
-# 
+# KuCoin Desktop offers advanced trading features, including margin trading, futures, and staking for crypto enthusiasts.
 
 
 
